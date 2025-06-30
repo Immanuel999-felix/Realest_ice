@@ -1,6 +1,12 @@
-## I'm Immanuelシ︎
+## I'm Immanuel Felix AKA Realest_ice❄️シ︎
 ## This a simple web for beginners 🙂
-## contact me on Whatsapp:https://wa.me/2349126807818, or telegram https://t.me/Imma_nuel999
-# WhatsApp channel:https://whatsapp.com/channel/0029VaioNMmADTOAj0T6Yw2s
+## And this was my first website ever made 🥴
+❍━─━─━─━─━─━─━─━─━─━─━─━─━─━─━─━─━─━─━─━─❍
+## It going to be getting updated soon by God Grace 💙
+## contact me on Whatsapp:https://wa.me/2349126807818
+## OR telegram https://t.me/Imma_nuel999
+# WhatsApp channel:https://whatsapp.com/
+
+
 *I'm Immanuelシ︎*
 _999_
